@@ -1,16 +1,17 @@
-## Hi there 👋
+<img width="500" height="47" alt="image" src="https://github.com/user-attachments/assets/cacaac98-240b-43c2-bf49-3cffa8435745" />
 
-<!--
-**R0S1EP0S1ES/R0S1EP0S1ES** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+[rentry!](https://rentry.co/bunniwunnizx)
+ <img width="250" height="143" alt="image" src="https://github.com/user-attachments/assets/a84d3a4a-dc6a-4a9a-bce7-3774ed92e7d6" />
+
+
+
+
+
+
+
+
+
+<img width="500" height="47" alt="image" src="https://github.com/user-attachments/assets/8bf68ef7-e0f4-4c29-9ec2-dbf2e7073d96" />
+
