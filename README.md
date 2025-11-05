@@ -7,7 +7,7 @@
 
 <img width="1280" height="130" alt="image" src="https://github.com/user-attachments/assets/c9ae4e67-6df7-4784-a27b-f0672a793526" />
 
-#    ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀ ₐᵦₒᵤₜ ₘₑRo!
+#    ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀ ₐᵦₒᵤₜ ₘₑ!
 I'm usually cuddling with friends or hiding in trees. Sometimes I age regress [(@cweamdawabbit)](https://github.com/cweamdawabbit) so, iwec at those times!
 # -------------------------------------☆---------------------------------
 #     ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀ ᵦₑ𝆑ₒᵣₑ yₒᵤ ᵢₙₜₑᵣₐ𝄴ₜ
