@@ -13,7 +13,8 @@ I'm usually cuddling with friends or hiding in trees. Sometimes I age regress [(
 #     ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀ ᵦₑ𝆑ₒᵣₑ yₒᵤ ᵢₙₜₑᵣₐ𝄴ₜ
 i am bodily 13(mentally 14-15), so sometimes my mind will flip to being immature at times.
 I both involuntarily and voluntarily age regress, sometimes I am only parshily age regressed or just acting like a child.
-I have undiagnosed ADHD, BPD, GAD, and Imposter syndrome(but it will be soon!)
+I have undiagnosed ADHD! (but it will be soon!)
+I also have BPD, GAD, C-PTSD, and selective mutism so, please iwc at all times!
 # -------------------------------------🫧---------------------------------
 #     ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀  dₒ ₙₒₜ ᵢₙₜₑᵣₐ𝄴ₜ
 Doubles please DNI if you kin with my ID's aswell, I've had multiple horrible experiences with yall so, please respect my boundaries!
