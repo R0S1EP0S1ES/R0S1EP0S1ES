@@ -1,13 +1,17 @@
-<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/2534d9b4-1848-4a39-9fa5-79677a2f08c3" />
+<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/33add6f6-6c16-4bd8-b197-ede968d293d0" />
 
 
 
 
-  <img width="650" height="650" alt="image" src="https://github.com/user-attachments/assets/181c512c-c5c8-406a-9880-de05f43b1939" />
+
+  ⠀⠀⠀⠀⠀⠀⠀⠀<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/17ffa4a8-3b4e-4eac-9c40-6cb3477a1f95" />
 
 
 
-<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/03b9d0f2-5802-46ec-afec-dbed742af9d0" />
+
+
+<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/a7637cab-fc13-48a4-90c0-aafdf189e707" />
+
 
 
 #     ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀  ₐᵦₒᵤₜ ₘₑ!
@@ -25,7 +29,7 @@ Sark supporters/cosplayers DNI. I absolutely hate you people with my entire bein
 EX-Friends thin ice/iwec, if we ended on neutral terms then dont be afraid and dm me on discord or ponytown! I'm sure we can work something out.
 # --------------------------------♩----------------------------------
 #     ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀  𝆑ᵣᵢₑₙdₛ!
-˖ ݁𖥔 ݁˖   𐙚   ˖ ݁𖥔 ݁˖ [@Ames!](https://github.com/PikoPikoHammer) ˖ ݁𖥔 ݁˖   𐙚   ˖ ݁𖥔 ݁˖
+˖ ݁𖥔 ݁˖   𐙚   ˖ ݁𖥔 ݁˖ [@Ames!](https://github.com/PikoPikoHammer) [@mars](https://github.com/orangejuyce) [@lunny](https://github.com/anglwngs)˖ ݁𖥔 ݁˖   𐙚   ˖ ݁𖥔 ݁˖
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ [@silver/okinos!](https://github.com/silverxpt) ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. [@Xan!](https://github.com/metadowyaoi) . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ [@mizz!](https://github.com/mizzcakes) ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
@@ -33,5 +37,6 @@ EX-Friends thin ice/iwec, if we ended on neutral terms then dont be afraid and d
 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒 [@sammy!!!](https://github.com/blueblurred) 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
   ‿̩͙‿੭　∔⠀ৎ‿̩͙‿  [@Rosa/Elysia!!](https://github.com/yuivsie)   ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ 
   ྀི︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶ [@Veronia!!](https://github.com/kittvz0nkyy)  ྀི︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶
-<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/48c013e1-4328-4279-8e6d-1452bf59154b" />
+<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/602c6a69-bda4-4d71-90a7-a677b417ab5c" />
+
 
