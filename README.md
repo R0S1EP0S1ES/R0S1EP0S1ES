@@ -3,7 +3,7 @@
 
 
 
-   ⠀   ⠀   ⠀     ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀  <img width="650" height="650" alt="image" src="https://github.com/user-attachments/assets/181c512c-c5c8-406a-9880-de05f43b1939" />
+<img width="650" height="650" alt="image" src="https://github.com/user-attachments/assets/181c512c-c5c8-406a-9880-de05f43b1939" />
 
 
 
@@ -20,7 +20,7 @@ I have undiagnosed ADHD! (but it will be soon!)
 I also have BPD, GAD, C-PTSD, and selective mutism so, please iwc at all times!
 # --------------------------------★---------------------------------
 #     ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀  dₒ ₙₒₜ ᵢₙₜₑᵣₐ𝄴ₜ
-Doubles please DNI if you kin with my ID's aswell, I've had multiple horrible experiences with yall so, please respect my boundaries!
+Doubles please DNIUF if you kin with my ID's aswell, I've had multiple horrible experiences with yall so, please respect my boundaries!
 Sark supporters/cosplayers DNI. I absolutely hate you people with my entire being.
 EX-Friends thin ice/iwec, if we ended on neutral terms then dont be afraid and dm me on discord or ponytown! I'm sure we can work something out.
 # --------------------------------♩----------------------------------
