@@ -3,7 +3,7 @@
 
 
 
-<img width="650" height="650" alt="image" src="https://github.com/user-attachments/assets/181c512c-c5c8-406a-9880-de05f43b1939" />
+  <img width="650" height="650" alt="image" src="https://github.com/user-attachments/assets/181c512c-c5c8-406a-9880-de05f43b1939" />
 
 
 
@@ -14,7 +14,7 @@
 I'm usually cuddling with friends or hiding in trees. Sometimes I age regress [(@cweamdawabbit)](https://github.com/cweamdawabbit) so, iwec at those times!
 # ---------------------------------☆---------------------------------
 #     ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀  ᵦₑ𝆑ₒᵣₑ yₒᵤ ᵢₙₜₑᵣₐ𝄴ₜ
-i am bodily turning 13 (mentally 14-15), so sometimes my mind will flip to being immature at times.
+i am bodily 13 (mentally 14-15), so sometimes my mind will flip to being immature at times.
 I both involuntarily and voluntarily age regress, sometimes I am only parshily age regressed or just acting like a child.
 I have undiagnosed ADHD! (but it will be soon!)
 I also have BPD, GAD, C-PTSD, and selective mutism so, please iwc at all times!
