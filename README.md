@@ -1,18 +1,21 @@
-<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/33add6f6-6c16-4bd8-b197-ede968d293d0" />
-
-
-
-
-
-  ⠀⠀⠀⠀⠀⠀⠀⠀<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/7aa6b9b6-3897-4609-b635-0486ad40dd5a" />
+<img width="2048" height="82" alt="image" src="https://github.com/user-attachments/assets/2a0c52a0-b54f-4dff-aef9-9e3ee0d65e21" />
 
 
 
 
 
 
+  ⠀⠀⠀⠀⠀⠀⠀⠀<img width="1000" height="800" alt="image" src="https://github.com/user-attachments/assets/973f3cc2-b262-4d13-84b4-fef70e3ef46f" />
 
-<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/a7637cab-fc13-48a4-90c0-aafdf189e707" />
+
+
+
+
+
+
+
+<img width="2047" height="331" alt="image" src="https://github.com/user-attachments/assets/48526d28-68eb-4415-97e3-32b9b1b714a3" />
+
 
 
 
@@ -38,6 +41,7 @@ EX-Friends thin ice/iwec, if we ended on neutral terms then dont be afraid and d
 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒 [@SONIC!!](https://github.com/blueblurred) 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
   ‿̩͙‿੭　∔⠀ৎ‿̩͙‿  [@Rosa/Elysia!!](https://github.com/yuivsie)   ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ 
   ྀི︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶ [@Veronia!!](https://github.com/kittvz0nkyy)  ྀི︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶
-<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/602c6a69-bda4-4d71-90a7-a677b417ab5c" />
+<img width="2048" height="209" alt="image" src="https://github.com/user-attachments/assets/3feef3a4-6ba1-4464-b876-09b94b8db996" />
+
 
 
