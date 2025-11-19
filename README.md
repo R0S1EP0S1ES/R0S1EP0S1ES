@@ -33,7 +33,7 @@ Sark supporters/cosplayers DNI. I absolutely hate you people with my entire bein
 EX-Friends thin ice/iwec, if we ended on neutral terms then dont be afraid and dm me on discord or ponytown! I'm sure we can work something out.
 # --------------------------------♩----------------------------------
 #     ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀  𝆑ᵣᵢₑₙdₛ!
-˖ ݁𖥔 ݁˖   𐙚   ˖ ݁𖥔 ݁˖ { [@Ames!](https://github.com/PikoPikoHammer) [@mars](https://github.com/orangejuyce) [@lunny](https://github.com/anglwngs) <-- online+irl family!! } [@exe guy :3](https://github.com/instrumentofchaos) <--- very cool god am friends wit !!! ˖ ݁𖥔 ݁˖   𐙚   ˖ ݁𖥔 ݁˖
+˖ ݁𖥔 ݁˖   𐙚   ˖ ݁𖥔 ݁˖ { [@Ames!](https://github.com/PikoPikoHammer) [@mars](https://github.com/orangejuyce) [@lunny](https://github.com/anglwngs) <-- online+irl family!! } ( [@exe guy :3](https://github.com/instrumentofchaos) <--- very cool god am friends wit !!!) ˖ ݁𖥔 ݁˖   𐙚   ˖ ݁𖥔 ݁˖
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ [@silver/okinos!](https://github.com/silverxpt) ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. [@Xan!](https://github.com/metadowyaoi) . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ [@mizz!](https://github.com/mizzcakes) ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
