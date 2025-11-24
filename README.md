@@ -37,12 +37,11 @@ Sark supporters/cosplayers DNI. I absolutely hate you people with my entire bein
 EX-Friends thin ice/iwec, if we ended on neutral terms then dont be afraid and dm me on discord or ponytown! I'm sure we can work something out.
 # --------------------------------♩----------------------------------
 #     ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀  𝆑ᵣᵢₑₙdₛ!
-˖ ݁𖥔 ݁˖   𐙚   ˖ ݁𖥔 ݁˖ { [@Ames!](https://github.com/PikoPikoHammer) [@mars](https://github.com/orangejuyce) [@lunny](https://github.com/anglwngs) <-- online+irl family!! } ( [@exe guy :3](https://github.com/instrumentofchaos) <--- very cool god am friends wit !!!) ˖ ݁𖥔 ݁˖   𐙚   ˖ ݁𖥔 ݁˖
+˖ ݁𖥔 ݁˖   𐙚   ˖ ݁𖥔 ݁˖ { [@Ames!](https://github.com/PikoPikoHammer) 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒   [@mars](https://github.com/orangejuyce) 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒 [@lunny](https://github.com/anglwngs)  ( [@GOD THEMSELF??!! 😱😱](https://github.com/instrumentofchaos) <-- online+irl family!! }˖ ݁𖥔 ݁˖   𐙚   ˖ ݁𖥔 ݁˖
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ [@silver/okinos!](https://github.com/silverxpt) ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. [@Xan!](https://github.com/metadowyaoi) . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ [@mizz!](https://github.com/mizzcakes) ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 ﹒⭒﹒⭒﹒⭒﹒ [@setsuna!!](https://github.com/MYSWEETPASSION) ﹒⭒﹒⭒﹒⭒﹒
-𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒 [@SONIC!!](https://github.com/blueblurred) 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
   ‿̩͙‿੭　∔⠀ৎ‿̩͙‿  [@Rosa/Elysia!!](https://github.com/yuivsie)   ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ 
   ྀི︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶ [@Veronia!!](https://github.com/kittvz0nkyy)  ྀི︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶
 <img width="2048" height="209" alt="image" src="https://github.com/user-attachments/assets/3feef3a4-6ba1-4464-b876-09b94b8db996" />
