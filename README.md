@@ -1,27 +1,7 @@
+
+<img width="949" height="637" alt="image" src="https://github.com/user-attachments/assets/1e7b05ac-58dd-42f1-95f9-f71872079104" />
+
 <img width="2048" height="663" alt="image" src="https://github.com/user-attachments/assets/ef8012e2-d922-43b8-8f84-37a4ec140cde" />
-
-
-
-
-
-
-
-  ⠀⠀⠀⠀⠀⠀⠀⠀<img width="940" height="1035" alt="image" src="https://github.com/user-attachments/assets/730abe64-fa79-4c24-8a13-fe54f0577ed6" />
-
-
-
-
-
-
-
-
-
-
-<img width="2048" height="209" alt="image" src="https://github.com/user-attachments/assets/e5782956-5aba-4a8a-b7a8-25520e78690f" />
-
-
-
-
 
 #     ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀  ₐᵦₒᵤₜ ₘₑ!
 I'm usually cuddling with friends, W2I always! [(@cweamdawabbit)](https://github.com/cweamdawabbit) <--- this is littl me, IWEC when shes around!
