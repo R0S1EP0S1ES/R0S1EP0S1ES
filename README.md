@@ -39,7 +39,7 @@ EX-Friends thin ice/iwec, if we ended on neutral terms then dont be afraid and d
 #     ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀  𝆑ᵣᵢₑₙdₛ!
 ˖ ݁𖥔 ݁˖   𐙚   ˖ ݁𖥔 ݁˖ { [@Ames!](https://github.com/PikoPikoHammer) 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒   [@mars](https://github.com/orangejuyce) 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒 [@lunny](https://github.com/anglwngs) 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒  [@GOD THEMSELF??!! 😱😱](https://github.com/instrumentofchaos) <-- online+irl family!! }˖ ݁𖥔 ݁˖   𐙚   ˖ ݁𖥔 ݁˖
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ [@silver/okinos!](https://github.com/silverxpt) ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
-. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. [@Xan!](https://github.com/metadowyaoi) . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. [@phoenix](https://github.com/Yuuki0nixx) . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ [@mizz!](https://github.com/mizzcakes) ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 ﹒⭒﹒⭒﹒⭒﹒ [@setsuna!!](https://github.com/MYSWEETPASSION) ﹒⭒﹒⭒﹒⭒﹒
   ‿̩͙‿੭　∔⠀ৎ‿̩͙‿  [@Rosa/Elysia!!](https://github.com/yuivsie)   ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ 
