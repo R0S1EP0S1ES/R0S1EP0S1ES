@@ -24,10 +24,10 @@
 
 
 #     ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀  ₐᵦₒᵤₜ ₘₑ!
-I'm usually cuddling with friends or hiding in trees. Sometimes I age regress [(@cweamdawabbit)](https://github.com/cweamdawabbit) so, iwec at those times!
+I'm usually cuddling with friends, W2I always! [(@cweamdawabbit)](https://github.com/cweamdawabbit) <--- this is littl me, IWEC when shes around!
 # ---------------------------------☆---------------------------------
 #     ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀  ᵦₑ𝆑ₒᵣₑ yₒᵤ ᵢₙₜₑᵣₐ𝄴ₜ
-i am bodily 13 (mentally 14-15), so sometimes my mind will flip to being immature at times.
+i am bodily 13 (mentally 5-13), so sometimes my mind will flip to being immature at times.
 I both involuntarily and voluntarily age regress, sometimes I am only parshily age regressed or just acting like a child.
 I get shy really easily and shut down so please iwc always.
 # --------------------------------★---------------------------------
