@@ -42,7 +42,7 @@ EX-Friends thin ice/iwec, if we ended on neutral terms then dont be afraid and d
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. [@phoenix](https://github.com/Yuuki0nixx) . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ [@mizz!](https://github.com/mizzcakes) ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 ﹒⭒﹒⭒﹒⭒﹒ [@setsuna!!](https://github.com/MYSWEETPASSION) ﹒⭒﹒⭒﹒⭒﹒
-  ‿̩͙‿੭　∔⠀ৎ‿̩͙‿  [@Rosa/Elysia!!](https://github.com/yuivsie)   ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ 
+  ‿̩͙‿੭　∔⠀ৎ‿̩͙‿  [@Rosa/Elysia!!](https://github.com/veilofroses)   ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ 
   ྀི︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶ [@Veronia!!](https://github.com/kittvz0nkyy)  ྀི︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶
 <img width="2048" height="209" alt="image" src="https://github.com/user-attachments/assets/3feef3a4-6ba1-4464-b876-09b94b8db996" />
 
